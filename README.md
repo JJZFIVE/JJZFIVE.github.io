@@ -6,6 +6,7 @@ Here are my favorite songs by **Adele:**
 1. 
 1.
 1.
+
 [Flashlight Out Now on Spotify](https://open.spotify.com/track/4lUzr68QcyJuNAM8VBPQHd?si=zi1y54vzSvWEJZFltHBI8w)
 
 > New original song featuring Reece Ratliff
@@ -21,5 +22,6 @@ Ultra | 70,000
 Lollapalooza | 70,000
 
 Rip Avicii
-![Avicii](/desktop/download.jpg)
+
+![Avicii](https://pbs.twimg.com/profile_images/893114729232703488/38XkoS0_.jpg)
 
